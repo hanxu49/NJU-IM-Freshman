@@ -9,7 +9,7 @@
 
 Gifts of roses, hand a fragrance.
 
-<p align="right">韩  旭</p>
+<p align="right">信管20级研究生韩旭</p>
 <p align="right">2020年8月17日 于南京大学仙林校区</p>
  
 
